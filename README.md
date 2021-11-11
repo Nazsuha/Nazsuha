@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nazsuha
-- 👀 I’m interested in ...
+- 👀 I’m interested in editing
 - 🌱 I’m currently learning software engineering
 - 💞️ I’m looking to collaborate on canva and photoshop premium
 - 📫 How to reach me 01136196289
